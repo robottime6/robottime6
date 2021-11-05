@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @robottime6
-- 👀 I’m interested in Children
+- 👀 I’m interested in children
 - 🌱 I’m currently learning How to escape prison
-- 💞️ I’m looking to collaborate on Escaping Prison
+- 💞️ I’m looking to collaborate on escaping Prison
 - 📫 How to reach me: Prison
 
 <!---
